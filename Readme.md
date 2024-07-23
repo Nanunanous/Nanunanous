@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Nanunanous. My first Name is: Bahria and my Last Name is: CHAIBI.I’m a smithword, creative and very passionate about how my idea comes to life.I love a challenge, I’m detail oriented and patient thanks to my work as a weather observer.
+- 👋 Hi, I’m @Nanunanous. My first Name is: Bahria and my Last Name is: CHAIBI.I’m a smithword, creative and very passionate about how my idea comes to life.I love a challenge, I'm creative thinking and problem solving, I’m detail oriented and patient thanks to my work as a weather observer.
 - 👀 I’m interested in writing,translating, nutrition & Meteorology (Atmospheric Sciences)...I am also Script writer.
-- 🌱 I’m currently learning Nutrition (Food Sciences & Diethetics) ...
+- 🌱 I’m currently learning Nutrition (Food Sciences & Diethetics) ... I want to prepare my doctorate to undertake my research on our prphet Muhammad's nutrition.
 - 💞️ I’m looking to collaborate on any project of translation & writing ( copywriting or content writing or content creator (SEO or Digital) ...
 - 📫 How to reach me directly by phone (Telegram or WatsApp) ... Kindly check my CV in ADMIN Repository within some documents.
 - 😄 Pronouns: ... She/Her
